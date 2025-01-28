@@ -1,1 +1,1 @@
-# Spotify-Imers-o-Alura
+# Spotify-Imersão-Alura
